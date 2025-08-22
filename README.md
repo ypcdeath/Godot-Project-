@@ -7,3 +7,4 @@
 <img width="1095" height="303" alt="a0ac9822086a0eadca73058d172888dd" src="https://github.com/user-attachments/assets/72077c64-4359-4a0b-8fdb-52ae75e89a0c" />
 
 
+##勇者传说大概30号前完工哦！！
